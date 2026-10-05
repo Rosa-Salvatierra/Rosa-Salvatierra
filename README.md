@@ -39,7 +39,7 @@ conocimientos y continuar aprendiendo.
 
 ## 📄 Mi CV
 
-📥 **[Ver / Descargar mi CV](./CV-Rosa-Salvatierra.pdf)**
+📥 **[Ver / Descargar mi CV](./CV Rosa Salvatierra.pdf)**
 
 ---
 
